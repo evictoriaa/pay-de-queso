@@ -9,4 +9,4 @@ https://github.com/INMEGEN/taller.supercomputo/blob/master/presentaciones/git.md
 ahora estamos haciendo cambios para aprender como consultar cambios  bueno eso creo
 
 Al parecer no estas aprendiendo absolutamente nada.
-
+Corregí mi error
