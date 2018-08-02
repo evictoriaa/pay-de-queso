@@ -10,3 +10,5 @@ ahora estamos haciendo cambios para aprender como consultar cambios  bueno eso c
 
 Al parecer no estas aprendiendo absolutamente nada.
 Corregí mi error
+
+mis niveles de glucosa están bajando
