@@ -12,3 +12,6 @@ Al parecer no estas aprendiendo absolutamente nada.
 Corregí mi error
 
 mis niveles de glucosa están bajando
+
+HOLA CRAYOLA 8 de agosto del 2018
+
